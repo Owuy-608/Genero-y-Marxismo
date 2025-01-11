@@ -1,6 +1,6 @@
 # Introducción.
 
-En este texto abordaremos la cuestión del género desde una perspectiva materialista. Si bien el aspecto biológico es relevante, actualmente no me considero capacitado para profundizar en él. No obstante, es importante mencionar el gen SRY, cuya activación durante el embarazo determina el desarrollo sexual. En algunos casos, este gen puede no activarse, lo que da lugar a personas con cromosomas XY que presentan fenotipos típicamente asociados a XX, como en el caso de María José Martínez-Patiño.
+En este texto abordaremos la cuestión del género desde una perspectiva materialista. Si bien el aspecto biológico es relevante, actualmente no me considero capacitado para profundizar en él. No obstante, es importante mencionar el gen SRY, cuya activación durante el embarazo determina el desarrollo sexual. En algunos casos, este gen puede no activarse, lo que da lugar a personas con cromosomas XY que presentan fenotipos típicamente asociados a XX, como en el caso de María José Martínez Patiño.
 
 Aclarado brevemente este argumento biológico, pasemos ahora al núcleo de la cuestión.
 
